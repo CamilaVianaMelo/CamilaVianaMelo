@@ -10,4 +10,4 @@ Meu nome é camila Viana Melo
 
 camila.viana.melo@escola.pr.gov.br
 
-
+https://media.tenor.com/ADAs_uxhc6cAAAAd/bom-dia-terr%C3%A1queos-valtatu%C3%AD-good-morning.gif
