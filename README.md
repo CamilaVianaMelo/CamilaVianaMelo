@@ -10,5 +10,4 @@ Meu nome é camila Viana Melo
 
 camila.viana.melo@escola.pr.gov.br
 
-![](https://media.tenor.com/SzLS2EyPOJQAAAAd/fnaf-fredbear.gif](https://media.tenor.com/SzLS2EyPOJQAAAAd/fnaf-fredbear.gif)https://media.tenor.com/SzLS2EyPOJQAAAAd/fnaf-fredbear.gif)
-
+![](https://media.tenor.com/P49xhh2DMcMAAAAd/fortnite-funny-dance.gif)
